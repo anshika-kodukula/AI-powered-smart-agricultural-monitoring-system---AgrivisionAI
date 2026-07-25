@@ -1,0 +1,1 @@
+# AI-powered-smart-agricultural-monitoring-system---AgrivisionAI
